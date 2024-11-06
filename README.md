@@ -1,5 +1,5 @@
 # laughing-waffle
-esse repó pó pó pó pó pó pó pó pó pósitorio não tem nada com nada, misericordia
+ainda não encontramos o fia da puta do Morlo
 
 ## Finalidade do projeto
 - fazer baguncinha em ipanema
